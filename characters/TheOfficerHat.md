@@ -1,4 +1,4 @@
-General Lore
+##General Lore
 	
  TheOfficerHat is a friendly guy with many connections all over the world, but some of those ties are dangerous — including the likes of █████, █████, and other Gods themselves.
  Little do they know he carries a second personality within him, one that is pure Evil, waiting for its chance to rise.
