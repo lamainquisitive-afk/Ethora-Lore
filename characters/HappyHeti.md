@@ -12,7 +12,7 @@ Heti seems to be trying to recover from his craziness in his last world by teach
 
 He also is trying to hide from this “God” as he calls it (Tho we haven’t seen “it” yet).He started building tunnels and underground hallways to hide and escape if he ever got attacked by “it”.
 
-Note: This “God” hasn’t been seen or measured so we think he is going crazy after all he built in his last “World” as he calls it tho the Theory of multiple dimensions haven’t been proven yet. Tho we have a theory that it could work with a Time and relative dimension in a space machine. Short T.A.R.D.I.S.  Tho we still have to figure that whole Machinery out and maybe we can do it and Investigate more on this “God”
+Note: This “God” hasn’t been seen or measured so we think he is going crazy after all he built in his last “World” as he calls it tho the Theory of multiple dimensions haven’t been proven yet. Tho we have a theory that it could work with a ██████████████████████████████████████ Short ███████████████  Tho we still have to figure that whole Machinery out and maybe we can do it and Investigate more on this “God”
 
 ##   ***Theories and Concerns***
 
