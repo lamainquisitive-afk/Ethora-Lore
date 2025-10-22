@@ -1,3 +1,10 @@
+Bread is fuel.
+all other gods are worthless and dead
+Must Make Bread
+
+
+
+
 Hi I'm yam yeah I think that's my name 
 So urmm I'm a fuck what was I. Oh yes I am a farmer 
 A completely normal...
