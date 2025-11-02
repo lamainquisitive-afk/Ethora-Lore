@@ -18,4 +18,6 @@ Note: This “God” hasn’t been seen or measured so we think he is going craz
 
 Heti doesn't seem to be harmless but also doesn’t want to harm anybody. We are very scared to investigate further on this case since we don't know what he’ll do if he finds us Investigating his stuff. He might try to sacrifice us to this “God” to keep himself safe but most of us dont think he is a threat. We classified him as a D level in Harm and we will try to talk to him if we have the chance but we don't want to show us too much or else he may adapt to it and find out our Hideout at the Operation .
 
-			
+# 	  ***Recent Observations***
+
+He seems to slowy turn sane again and more focused we can't keep this much longer or he will find us.
